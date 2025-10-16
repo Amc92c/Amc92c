@@ -1,0 +1,19 @@
+## Hi there 👋
+
+<!--
+**Amc92c/Amc92c** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+- 🔭 I’m currently working on ...
+- 🌱 I’m currently learning ...
+- 👯 I’m looking to collaborate on ...
+- 🤔 I’m looking for help with ... Microsoft google open  and Malaysia government 
+- 💬 Ask me about ...
+- 📫 How to reach me: ...
+- 😄 song music art 
+- ⚡ Fun fact: ...
+-->
+partner share with global and Malaysia 
+hand over authority by Microsoft google open ai 
+local Malaysian government also looking for owrk forever as marketing for ai business deal collaboration 
